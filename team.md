@@ -20,3 +20,5 @@ My name is Carson. I was cursed by a Witch 3.5 years ago!!
 # Gordon 
 I'm a degenerate :)
 # Maya
+
+Hello! I am Maya, and I enjoy dancing, drawing, and gaming! My favorite colors are yellow, purple, and blue; and I own a dog named Molly! :P
